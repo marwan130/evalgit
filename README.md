@@ -1,1 +1,1 @@
-Paris vs Barça
+Paris vs Bayern
